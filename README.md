@@ -1,2 +1,11 @@
-# ZajeciaAkademii
-Zajęcia akademii gimnazajlnej
+# ZajeciaA
+
+*HAHAHAHAHHA*
+
+kademii
+
+Zajęcia akade
+
+**POPSUŁEM USTAWIENIE PLIKU**
+
+mii gimnazajlnej
