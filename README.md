@@ -1,11 +1,7 @@
-# ZajeciaA
+# ZajeciaAkademii
+Zajęcia akademii gimnazajlnej
 
-*HAHAHAHAHHA*
+Nic z tego kolego!!!
+### Plik pozostanie niepopsuty!
 
-kademii
-
-Zajęcia akade
-
-**POPSUŁEM USTAWIENIE PLIKU**
-
-mii gimnazajlnej
+Rozwiązałem problem! Rozwiązując Twojego merge requesta!
